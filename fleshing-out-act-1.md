@@ -31,6 +31,7 @@ undercover cop)
     - as the only 2 to have survived their considered failures and given some really shitty jobs to do together
 
     - by doing these jobs, and doing them well they are eventually given more and more serious jobs within the organisation and become good friends.
+---
 
 ultimately they become so close that the criminal asks the cop to dinner at his families where you see that when the crimal isnt peddling drugs he is in fact a great fucking guy.
 
