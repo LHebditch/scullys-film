@@ -6,9 +6,11 @@ Well from what Scully told me act 1 is going to be exclusively the two meeting a
 I don't fucking know.  
 But lets think of some ideas!
 
+---
 > note: the cop should probably already be in th organistaion. it might be too much for this guy to bring him in as well?
 
 > note: I'm also assuming that this is from the perspective of the criminal
+---
 
 1. **They** are both put on the same drug route (accidentally) have an argument about it and find out that in fact both of them were supposed to be working it together.
     - from there they start off (obviously) disliking each other
@@ -30,4 +32,13 @@ undercover cop)
 
     - by doing these jobs, and doing them well they are eventually given more and more serious jobs within the organisation and become good friends.
 
-ultimately they become so close that the criminal asks the cop to dinner at his families where you see that when the crimal isnt peddling drugs he is in fact agreat fucking guy.
+ultimately they become so close that the criminal asks the cop to dinner at his families where you see that when the crimal isnt peddling drugs he is in fact a great fucking guy.
+
+So I guess by the end of act 1 they need to be real close. And i guess we need to be leading into the `big job` they go on. I think.
+
+---
+## What should the audience be thinking at this point
+- they're both crimnals
+- despite being crinminals they are both real good dudes
+    - so good that in fact they both seem like protagonists
+- the audience probs won't be ok with the `big job`  but they definately want our 2 guys to succeed
