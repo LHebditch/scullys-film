@@ -36,7 +36,6 @@ ultimately they become so close that the criminal asks the cop to dinner at his 
 
 So I guess by the end of act 1 they need to be real close. And i guess we need to be leading into the `big job` they go on. I think.
 
----
 ## What should the audience be thinking at this point
 - they're both crimnals
 - despite being crinminals they are both real good dudes
